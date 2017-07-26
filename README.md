@@ -1,0 +1,1 @@
+assessment-splash-page-multimedia
